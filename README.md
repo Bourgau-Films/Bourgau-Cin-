@@ -12,3 +12,8 @@ Dimanche 12 janvier: Anne-Claire Bourgau, Philippe Bourgau, Mireille Durand, Yve
 
 Samedi 18 janvier: Sylvain et Nathalie Sertier
 
+## Partenaria Bourgau Film's
+
+![clés USB](Capcle.png)
+
+Si vous voulez vous procurer un des films de Bourgau Film's, vous pouvez demander dans un de nos cinémas une clé USB. 
