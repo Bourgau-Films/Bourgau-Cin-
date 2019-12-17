@@ -12,11 +12,11 @@
 
 [![Troisième Tentative 001](8B3FBF2F-2CAB-480C-9EC4-72254DF91019.jpeg)](https://www.youtube.com/watch?v=4NtmfqOH3K8)
 
-##### Représentations / Invités
+#### Représentations / Invités
 
-Dimanche 12 janvier: Anne-Claire Bourgau, Philippe Bourgau, Mireille Durand, Yves Durand, Florence Vangraefschepe et Franck Vangraefschepe
+**Dimanche 12 janvier:** Anne-Claire Bourgau, Philippe Bourgau, Mireille Durand, Yves Durand, Florence Vangraefschepe et Franck Vangraefschepe
 
-Samedi 18 janvier: Sylvain et Nathalie Sertier
+**Samedi 18 janvier:** Sylvain et Nathalie Sertier
 
 ## Partenaria Bourgau Film's
 
