@@ -1,4 +1,4 @@
-![logo BC](AA6C7BE7-63A6-467C-8EE3-989D5DCB64A8_4_5005_c.jpeg)
+![logo BC](Capture%20d’écran%202019-12-17%20à%2008.27.11.png)
 
 
 
