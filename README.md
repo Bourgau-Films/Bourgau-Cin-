@@ -24,4 +24,4 @@
 
 Si vous voulez vous procurer un des films de Bourgau Film's, vous pouvez demander dans un de nos cinémas une clé USB. 
 
-# Merci et à bientôt sur Bourgau Ciné' !
+# Merci et à bientôt sur Bourgau Ciné !
