@@ -15,6 +15,8 @@ Pour visonner les bandes-annonces des films proposés, vous pouvez cliquer sur l
 
 #### Représentations / Invités
 
+**Mercredi 25 Décembre:** Anne-Claire Bourgau, Philippe Bourgau, Mireille Durand, Yves Durand,Jean-Sébastien Durand, Vincent Audax, Kathleen Bourgau, Pierre Bourgau 
+
 **Dimanche 12 janvier:** Anne-Claire Bourgau, Philippe Bourgau, Mireille Durand, Yves Durand, Florence Vangraefschepe et Franck Vangraefschepe
 
 **Samedi 18 janvier:** Sylvain et Nathalie Sertier
