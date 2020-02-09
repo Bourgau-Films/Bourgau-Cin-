@@ -15,9 +15,7 @@ Pour visonner les bandes-annonces des films proposés, vous pouvez cliquer sur l
 
 #### Représentations / Invités
 
-**Dimanche 12 janvier:** Anne-Claire Bourgau, Philippe Bourgau, Mireille Durand, Yves Durand, Florence Vangraefschepe et Franck Vangraefschepe
-
-**Samedi 18 janvier:** Sylvain et Nathalie Sertier
+###### Aucune représentation prévue
 
 ## Partenaria Bourgau Film's
 
